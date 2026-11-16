@@ -1,0 +1,1 @@
+My name is Mauricio Medina. I was born in Venezuela, but I lived in Argentina for 10 years before moving to Montreal. I am 30 years old, and I am an international student at LaSalle College in Montreal.
